@@ -1,1 +1,0 @@
-# alanazeredoguedes.github.io
